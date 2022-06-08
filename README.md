@@ -2,7 +2,7 @@
 - 👀 I’m interested in Development
 - 🌱 I’m doing internship @Coditas
 - 📫 How to reach me ...
--     Mail : deepak.kumar@coditas.com
+-     Mail : deepakprajapati.officials@gmail.com
       Mob  : 9546579738
 
 <!---
